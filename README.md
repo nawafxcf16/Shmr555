@@ -83,3 +83,7 @@ https://modsfire.com/1zB2Fe60VYCyP36
 النترا 25
 
 https://modsfire.com/UmQ52Z3Fb87J5Gc
+
+هايلوكس 12 -15
+
+https://modsfire.com/zVrX4c7KeZ4Gqaj
