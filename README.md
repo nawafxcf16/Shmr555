@@ -12,34 +12,16 @@ https://gofile.io/d/rEQZ5T
 
 
 
-اكورد ٢٠٠٨ -١٢
-
-https://modsfire.com/55361O4P616oqN1
-
-
-مكسيما 99 شلاااق
-
-https://modsfire.com/download/Yv31aCQGvgA398l/b5ce3
-
 
 هايلوكس ٢٠١٦-٢٠٢٠ غمارتين 
 
 https://modsfire.com/oKhWUXVl556mJ4a
 
-كروز 17 
-https://modsfire.com/v77T8rg7GXU7pli
-
-
-كامري 2024 حصريه
-
-https://modsfire.com/woyu1oUb8K6q075
 
 
 هايلوكس 99-2005
 https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl
 
-جيب لكزس 2000
-https://www.mediafire.com/file/rl5osbd004qj1md/LC_100_omashida.zip/file
 
 جكس هدد 2015 
 https://modsfire.com/kM5i7H46287Cd28
@@ -92,6 +74,3 @@ https://modsfire.com/zVrX4c7KeZ4Gqaj
 https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
 
 
-هايلوكس 2009-2011 جميع اللوكات موجودة ان شاء الله 
-
-https://drive.google.com/file/d/1zQ8VHbzBQ-etE80SkdXG69HQFFyfJn17/view?usp=drive_link
