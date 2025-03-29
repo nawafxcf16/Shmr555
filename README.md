@@ -98,3 +98,5 @@ https://www.modland.net/beamng.drive-mods/cars/honda-accord-13.html
 
 اكورد 2007-17
 https://www.modland.net/beamng.drive-mods/cars/honda-akord-2007-2017-accord.html
+هايلوكس 2009
+https://gofile.io/d/rm6lcA
