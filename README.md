@@ -73,4 +73,28 @@ https://modsfire.com/zVrX4c7KeZ4Gqaj
 ربع يشتغل
 https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
 
+ماكسيما 96
 
+
+https://www.modland.net/beamng.drive-mods/cars/beta-nissan-maxima-96.html
+
+التيما 23
+https://www.modland.net/beamng.drive-mods/cars/nissan-altima-2023-2027.html
+
+كروز17
+https://www.modland.net/beamng.drive-mods/cars/chevrolet-cruze-2017-m7-034x.html
+
+كامري ٢٣
+https://www.modland.net/beamng.drive-mods/cars/toyota-camry-xv70-arab.html
+
+كامري ١١ 
+https://www.modland.net/beamng.drive-mods/cars/camry2011.html
+
+نسخة ثانيه من الكامري 
+https://www.modland.net/beamng.drive-mods/cars/toyota-camry-40.html
+
+اكورد 2013
+https://www.modland.net/beamng.drive-mods/cars/honda-accord-13.html
+
+اكورد 2007-17
+https://www.modland.net/beamng.drive-mods/cars/honda-akord-2007-2017-accord.html
