@@ -167,8 +167,6 @@ https://www.dropbox.com/scl/fi/rogwq69tbyj5ybk4hphpc/wcusa_lights_performance.zi
 ماب 6 ( خريطه قراند 5 ) :
 https://www.dropbox.com/scl/fi/x8sfyk9yybymfe55cub16/gta_v.zip?rlkey=wk8aowsdecvqjbxohbhl5nzol&dl=1
 
-لاند كروزر 2015 :
-https://www.dropbox.com/scl/fi/58s1wg75yn0rlu6epa35h/cruser200.zip?rlkey=aytj9rlfles9hwh257nneolnb&dl=1
 
 صني 2022:
 https://www.dropbox.com/scl/fi/9gdtstnokv3c46seffwpv/metosunny22.zip?rlkey=c0vhbm03yjteraepgffx0w73q&dl=1
@@ -191,5 +189,6 @@ https://www.dropbox.com/scl/fi/byggbdgxmntatvqcu41tw/jettaA6.zip?rlkey=99z4gigm9
 اف جي :
 https://www.dropbox.com/scl/fi/ayj9dt4m1vxh1z8p5zsf5/fj_meto.zip?rlkey=az70f0mihaj5ekqpeapq9ewn4&dl=1
 
-ماركيز :
-https://www.dropbox.com/scl/fi/9wyx2zsihi243n584e8an/Mrkez_rcqk.zip?rlkey=eosdzti40papqp3n8zv80ewvh&dl=1
+شاص 2003-23 ان شاء الله شغال
+
+https://modsfire.com/PemQ8Qc2kxp0Jw8
