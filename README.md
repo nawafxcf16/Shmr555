@@ -91,6 +91,9 @@ https://www.modland.net/beamng.drive-mods/cars/honda-accord-13.html
 اكورد 2007-17
 https://www.modland.net/beamng.drive-mods/cars/honda-akord-2007-2017-accord.html
 
+كابرس 9-16
+
+https://modsfire.com/sw691BoW44h8voN
 
 هايلوكس 2002-2005 واقعية اكثر من النسخة السابقة 
 
