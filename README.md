@@ -177,13 +177,3 @@ https://www.dropbox.com/scl/fi/2mkd22sdmrj8xnqnvylku/Honda-Acty-HA3.zip?rlkey=h1
 
 ماب 7 ( قيد الصيانه ) :
 https://www.dropbox.com/scl/fi/z3is1z5uysjb6eajzs49m/Al-Jaradiah-riyadh-rcqk.zip?rlkey=x8rukr8tu0okixib6onewf82n&dl=1
-
-فولكس واجين نسخه 2 :
-https://www.dropbox.com/scl/fi/byggbdgxmntatvqcu41tw/jettaA6.zip?rlkey=99z4gigm96sjoapd2ng03usi0&dl=1
-
-اف جي :
-https://www.dropbox.com/scl/fi/ayj9dt4m1vxh1z8p5zsf5/fj_meto.zip?rlkey=az70f0mihaj5ekqpeapq9ewn4&dl=1
-
-شاص 2003-23 ان شاء الله شغال
-
-https://modsfire.com/PemQ8Qc2kxp0Jw8
