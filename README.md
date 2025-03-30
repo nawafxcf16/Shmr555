@@ -13,10 +13,6 @@ https://gofile.io/d/rEQZ5T
 
 
 
-هايلوكس ٢٠١٦-٢٠٢٠ غمارتين 
-
-https://modsfire.com/oKhWUXVl556mJ4a
-
 
 
 هايلوكس 99-2005
@@ -73,10 +69,6 @@ https://modsfire.com/zVrX4c7KeZ4Gqaj
 ربع يشتغل
 https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
 
-ماكسيما 96
-
-
-https://www.modland.net/beamng.drive-mods/cars/beta-nissan-maxima-96.html
 
 التيما 23
 https://www.modland.net/beamng.drive-mods/cars/nissan-altima-2023-2027.html
@@ -99,14 +91,7 @@ https://www.modland.net/beamng.drive-mods/cars/honda-accord-13.html
 اكورد 2007-17
 https://www.modland.net/beamng.drive-mods/cars/honda-akord-2007-2017-accord.html
 
-هايلوكس 2009
-https://www.dropbox.com/scl/fi/gpeyki4p7xwxankna0ec7/Nolimts-Toyota-Hilux-2009-2011-2.zip?rlkey=7lc6ubsmt8kzdod7e4oumdk6f&st=t84qbbsz&dl=1
 
+هايلوكس 2002-2005 واقعية اكثر من النسخة السابقة 
 
-
-او هذا
-https://modsfire.com/s8z2479l444pzw8
-
-
-هايلوكس ٢٠٠٨
-https://modsfire.com/yG8Wm9F8F8w81sV
+https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl-v2
