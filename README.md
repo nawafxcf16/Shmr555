@@ -106,8 +106,6 @@ https://www.dropbox.com/scl/fi/qiip4io138r0jnp33cef8/Toyota_Camry_2007_By_Fna_mo
 هايكلس 1997 :
 https://www.dropbox.com/scl/fi/4r9jmfhy98wsmmqc165pf/Toyota_Hilux_1997_modland.zip?rlkey=c7nih7dr1psm8bt0q3dgfmcao&dl=1
 
-كامري 2006 :
-https://www.dropbox.com/scl/fi/s8i9d22409xrgq4vzighb/Ali_Toyota_Camry_2003-2006.zip?rlkey=jxdws1wae596xbhmejf8x28c3&dl=1
 
 لاند كروزر 2020 :
 https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
@@ -139,8 +137,6 @@ https://www.dropbox.com/scl/fi/p2voeeobn4w5pjw9qh7d9/Vehicles.zip?rlkey=hupitg50
 سيراتو :
 https://www.dropbox.com/scl/fi/5o9b4yhuyzpamlzsbfz8m/CeratoFIR.zip?rlkey=4fvvrm8dhfb0a48ah4iohidkz&dl=1
 
-كوريلا 2012 :
-https://www.dropbox.com/scl/fi/rxvlyghefiiqjl80n2q8x/corolla12.zip?rlkey=tom2m55sj9y1o53w00rwal63e&dl=1
 
 كادلك 2023 :
 https://www.dropbox.com/scl/fi/k7gg2jlt4dps5nolml1ry/2023-Cadillac-Escalade-ESV-1.0.zip?rlkey=2vi5278h0ormqwzx6mjwap9bs&dl=1
@@ -151,8 +147,7 @@ https://www.dropbox.com/scl/fi/4m9gq8t83bx75arco8gnu/Meto-corolla.zip?rlkey=q6sa
 كامري 2002 :
 https://www.dropbox.com/scl/fi/l8trkmuf00v4tk8di3ybp/Toyota_Camry_xv20_By_AbdoHusyan-1.zip?rlkey=awczqdxg7v8wehbhz8lh5d0jy&dl=1
 
-مكسيما 99 :
-https://www.dropbox.com/scl/fi/5t6ncexjbwtwdn5b7g6p0/MetoMaxima99.zip?rlkey=gukcuw3fqernpmzdf0chx85x7&dl=1
+
 
 ريو 12 :
 https://www.dropbox.com/scl/fi/6bsmmxodzrfihn26j27cp/rio12_meto_dyfwl.zip?rlkey=1h9nkvr34dthyl60j0pafmrcg&dl=1
