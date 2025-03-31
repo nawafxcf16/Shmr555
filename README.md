@@ -41,14 +41,7 @@ https://modsfire.com/0kg0Mz4tRbY0k4Y
 جكس 99-2007
 https://drive.google.com/file/d/1iHsJfJcx6OjBpbsXSW06NFkW1pIBxlTb/view?usp=sharing
 
-لاند 99-2007 النسخة الثالثة
 
-
-https://www.dropbox.com/scl/fi/0xlzbwmt4wq0kw7dh0jf3/land-2007_199v1-9.zip?rlkey=k7gkes0xqhf0o9vvvwbs1nxql&e=4&st=3dax58a3&dl=1
-
-لاند النسخة الرابعة 99-2007
-
-https://modsfire.com/pov8KpYT4956u53
 
 في اكس ٩٧
 https://modsfire.com/X28D41DEVffW66X
@@ -108,6 +101,9 @@ https://www.modland.net/beamng.drive-mods/cars/honda-akord-2007-2017-accord.html
 كابرس 9-16
 
 https://modsfire.com/sw691BoW44h8voN
+
+نسخة ثانية من الكابرس 
+https://modsfire.com/20py72ibsVDoJqQ
 
 هايلوكس 2002-2005 واقعية اكثر من النسخة السابقة 
 
