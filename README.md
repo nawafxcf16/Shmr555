@@ -113,6 +113,9 @@ https://modsfire.com/sw691BoW44h8voN
 
 https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl-v2
 
+كورولا ٢٠٢٤-٢٠٢٠
+https://modsfire.com/lhDjpx8ln128Nab
+
 ددسن غمارة ١٥
 https://www.modland.net/beamng.drive-mods/cars/nissan-ddsen-1-cab-beta-released.html
 
