@@ -27,9 +27,7 @@ https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl
 https://modsfire.com/kM5i7H46287Cd28
 
 
-لكزس23
 
-https://sharemods.com/q9ergjzx8hfr/2023_Lexus_LX500_V2.zip.html
 
 
 كامري 2005
