@@ -59,6 +59,10 @@ https://modsfire.com/4oB9GIg87QHgie5
 ربع 2003-23
 https://modsfire.com/E52Uczqa2Hm7BGW
 
+شاص 21
+https://www.modland.net/beamng.drive-mods/cars/toyota-j70-pickup.html
+
+
 كامري 2025
 https://mods.to/Ua1N672ddccc49453
 
