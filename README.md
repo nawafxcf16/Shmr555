@@ -84,6 +84,14 @@ https://modsfire.com/E52Uczqa2Hm7BGW
 شاص 21
 https://www.modland.net/beamng.drive-mods/cars/toyota-j70-pickup.html
 
+ربع 23
+
+https://sharemods.com/p5288k2dgc9j/Land_Cruiser_j70_2023_KHwylD.zip.html
+
+
+ربع ٢٤
+https://www.mediafire.com/file/hih3pv4hcg3c84y/landsg+24.zip/file
+
 
 كامري 2025
 https://mods.to/Ua1N672ddccc49453
