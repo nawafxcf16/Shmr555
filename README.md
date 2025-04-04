@@ -43,8 +43,6 @@ https://modsfire.com/Ph5LdFk4mT6UB47
 https://modsfire.com/kM5i7H46287Cd28
 
 
-هيلوكس 2009
-https://www.modland.net/beamng.drive-mods/cars/toyota-hilux-2009.html
 
 
 كامري 2005
@@ -148,6 +146,13 @@ https://modsfire.com/20py72ibsVDoJqQ
 هايلوكس 2002-2005 واقعية اكثر من النسخة السابقة 
 
 https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl-v2
+
+ازيرا حقت هجولة ٢٢
+https://modsfire.com/8j1iPR67kN10kVE#google_vignette
+
+
+
+
 
 كورولا ٢٠٢٤-٢٠٢٠
 https://modsfire.com/lhDjpx8ln128Nab
