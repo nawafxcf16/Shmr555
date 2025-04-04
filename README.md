@@ -23,6 +23,21 @@ https://modsfire.com/x0pFzyU8nlU5vk9
 https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl
 
 
+شاص 14
+رابط الاول 
+https://www.dropbox.com/scl/fi/de02wp95gqpf0wvzxg5st/Land_Cruiser_j70_2007_KHwylD.dts.zip?rlkey=fixm37hqri2s3x72eo2rmyzfe&st=ejipid9z&dl=1
+
+الثاني
+
+https://www.dropbox.com/scl/fi/bybn3dxmnzwbq5l8exno0/Land_Cruiser_j70_2007_KHwylD.dts-1.zip?rlkey=8zrtjcbln5msg54gvj7swbf7b&st=6k1a969g&dl=1
+الثالث
+
+https://drive.usercontent.google.com/download?id=1xqZvPP02HTu8XoE_H8Y6Y8iws-2NCSoW&export=download&authuser=0
+
+الرابع
+
+https://modsfire.com/Ph5LdFk4mT6UB47
+
 
 جكس هدد 2015 
 https://modsfire.com/kM5i7H46287Cd28
