@@ -38,6 +38,8 @@ https://drive.usercontent.google.com/download?id=1xqZvPP02HTu8XoE_H8Y6Y8iws-2NCS
 
 https://modsfire.com/Ph5LdFk4mT6UB47
 
+الخامس 
+https://www.mediafire.com/file/ertx6b1hyfbw2en/Land_Cruiser_j70_2007_KHwylD.dts+2.zip/file
 
 جكس هدد 2015 
 https://modsfire.com/kM5i7H46287Cd28
