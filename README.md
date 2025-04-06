@@ -41,8 +41,6 @@ https://modsfire.com/Ph5LdFk4mT6UB47
 الخامس 
 https://www.mediafire.com/file/ertx6b1hyfbw2en/Land_Cruiser_j70_2007_KHwylD.dts+2.zip/file
 
-جكس هدد 2015 
-https://modsfire.com/kM5i7H46287Cd28
 
 
 
@@ -149,9 +147,6 @@ https://modsfire.com/20py72ibsVDoJqQ
 
 https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl-v2
 
-هايلوكس 16-24 فخمة
-
-https://modsfire.com/b6dMpGMRmJn2mD8
 
 
 
@@ -171,4 +166,10 @@ https://modsfire.com/lhDjpx8ln128Nab
 https://www.modland.net/beamng.drive-mods/cars/nissan-ddsen-1-cab-beta-released.html
 
 
+هايلوكس ٩ ضروري تحمل الملفين وتحطه بمود
 
+
+https://www.dropbox.com/scl/fi/ub37nbuykcjlmzalbyhqm/Hilux_2011_KHwylD.zip?rlkey=ezdvtya6r25adasip5eyy40s2&st=kjlgcas6&dl=1
+
+هذا الملف الثاني حق اللوكات
+https://www.dropbox.com/scl/fi/7abwyj2pldrhjxf2rjkhc/Hilux_2011_KHwylD-1.zip?rlkey=0h5z988163wwknj8j3qw9unn0&st=ugw4cwez&dl=1
