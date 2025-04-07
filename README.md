@@ -160,6 +160,13 @@ https://modsfire.com/8j1iPR67kN10kVE#google_vignette
 
 https://www.modland.net/beamng.drive-mods/cars/optima-2015.html
 
+كامري ٢٠٠٤ حلوه
+
+https://www.modland.net/beamng.drive-mods/cars/camry2004.html
+
+
+
+
 كورولا ٢٠٢٤-٢٠٢٠
 https://modsfire.com/lhDjpx8ln128Nab
 
