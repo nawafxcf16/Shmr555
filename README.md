@@ -155,9 +155,10 @@ https://www.quackartdesigns.com/cars/2002-2005-toyota-hilux-gl-v2
 ازيرا حقت هجولة ٢٢
 https://modsfire.com/8j1iPR67kN10kVE#google_vignette
 
+اوبتيما ١٥
 
 
-
+https://www.modland.net/beamng.drive-mods/cars/optima-2015.html
 
 كورولا ٢٠٢٤-٢٠٢٠
 https://modsfire.com/lhDjpx8ln128Nab
