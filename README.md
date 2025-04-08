@@ -59,7 +59,15 @@ https://modsfire.com/q09CF6vj47wBR6C
 
 
 شاص ٢٠٠٦
-https://www.dropbox.com/scl/fi/nl9dpo5zpul7wa35tcmzf/abosaad_LX_2006.zip?rlkey=mk611tvta4riv34ack1sz0dqm&st=qxc0tej7&dl=0
+https://www.dropbox.com/scl/fi/nl9dpo5zpul7wa35tcmzf/abosaad_LX_2006.zip?rlkey=mk611tvta4riv34ack1sz0dqm&st=qxc0tej7&dl=1
+
+
+الرابط الثاني
+https://www.dropbox.com/scl/fi/ee1ee4ph4vbgplopppw2t/abosaad_LX_20062xd.zip?rlkey=2id11uvlsy17xys3pn37urk4u&st=blrur0g4&dl=1
+
+
+
+
 
 
 
