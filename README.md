@@ -49,9 +49,17 @@ https://www.mediafire.com/file/ertx6b1hyfbw2en/Land_Cruiser_j70_2007_KHwylD.dts+
 
 https://modsfire.com/B8Ge6O5xYx7cV33
 
+
+
+
+
 كورولا 20
 https://modsfire.com/q09CF6vj47wBR6C
 
+
+
+شاص ٢٠٠٦
+https://www.dropbox.com/scl/fi/nl9dpo5zpul7wa35tcmzf/abosaad_LX_2006.zip?rlkey=mk611tvta4riv34ack1sz0dqm&st=qxc0tej7&dl=0
 
 
 
