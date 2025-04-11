@@ -205,3 +205,9 @@ https://www.dropbox.com/scl/fi/ub37nbuykcjlmzalbyhqm/Hilux_2011_KHwylD.zip?rlkey
 
 هذا الملف الثاني حق اللوكات
 https://www.dropbox.com/scl/fi/7abwyj2pldrhjxf2rjkhc/Hilux_2011_KHwylD-1.zip?rlkey=0h5z988163wwknj8j3qw9unn0&st=ugw4cwez&dl=1
+
+
+
+
+وايت سقس
+https://www.modland.net/download/275940
