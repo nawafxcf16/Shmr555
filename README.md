@@ -71,10 +71,9 @@ https://www.dropbox.com/scl/fi/ee1ee4ph4vbgplopppw2t/abosaad_LX_20062xd.zip?rlke
 
 
 
-هايلوكس ١٦-٢٤
+هايلوكس ١٦-٢٥
 
-https://modsfire.com/VPXlAYt2aF16F6N
-
+https://www.mediafire.com/file/xovyx2pg6khvtpd/Hilu16.dts.zip/file
 
 
 
