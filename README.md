@@ -30,17 +30,14 @@ https://www.dropbox.com/scl/fi/de02wp95gqpf0wvzxg5st/Land_Cruiser_j70_2007_KHwyl
 الثاني
 
 https://www.dropbox.com/scl/fi/bybn3dxmnzwbq5l8exno0/Land_Cruiser_j70_2007_KHwylD.dts-1.zip?rlkey=8zrtjcbln5msg54gvj7swbf7b&st=6k1a969g&dl=1
-الثالث
 
-https://drive.usercontent.google.com/download?id=1xqZvPP02HTu8XoE_H8Y6Y8iws-2NCSoW&export=download&authuser=0
 
-الرابع
 
-https://modsfire.com/Ph5LdFk4mT6UB47
 
-الخامس 
-https://www.mediafire.com/file/ertx6b1hyfbw2en/Land_Cruiser_j70_2007_KHwylD.dts+2.zip/file
+ هذا شاص شغال ٢٠٠٧-١٦
 
+
+https://www.dropbox.com/scl/fi/e59ymyq0af1r123evoo5r/Land_Cruiser_j70_2007_KHwylD.zip?rlkey=1gbtzaaojyo7hqz5uailzd2su&st=pn4s3nuz&dl=1
 
 
 
